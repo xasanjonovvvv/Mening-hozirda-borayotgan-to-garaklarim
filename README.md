@@ -1,1 +1,1 @@
-# Mening-hozirda-borayotgan-to-garaklarim
+# Mening-hozirda-borayotgan-to'garaklarim
